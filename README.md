@@ -10,7 +10,5 @@ https://pan.baidu.com/share/init?surl=wHoT5ZBnT2wMj12pbwQCAw&pwd=i6e3
 https://pan.baidu.com/s/1x39ycrIV6mwgqSpqq2EYxw?pwd=5bsx​
 
 -Third
-https://pan.baidu.com/share/init?surl=m29ManuSDpFOB6kLiNVQoA&pwd=c41p
-RO(1).7z ~20G
 https://pan.baidu.com/s/15sbJs-fs_GlNatzOPNSl9A?pwd=42ph
 ~30G
